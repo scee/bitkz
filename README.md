@@ -1,4 +1,4 @@
-# bitkz# BITKWANZA (BKZ) Full Whitepaper
+# BITKWANZA (BKZ) Full Whitepaper
 
 ---
 
